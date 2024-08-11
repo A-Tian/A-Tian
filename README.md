@@ -1,3 +1,3 @@
-# *✧[𝕯𝖊𝖒𝖔𝖓𝖘 𝕭𝖆𝖓𝖖𝖚𝖊𝖙 -友成空(𝔗𝔬𝔪𝔬𝔫𝔞𝔯𝔦 𝔖𝔬𝔯𝔞)](https://youtu.be/o6wtDPVkKqI?si=NmqComE0ruc3qArJ)✧*ㅤㅤ ㅤㅤ
+# *✧[𝔄1 - 𝕴𝖙'𝖘 𝖏𝖚𝖘𝖙 𝖆 𝖇𝖚𝖗𝖓𝖎𝖓𝖌 𝖒𝖊𝖒𝖔𝖗𝖞](https://youtu.be/wPOF5FgG3DU?si=mnLszv162dCKXFAg)✧*ㅤㅤ ㅤㅤ
 # *ㅤ ㅤ 𝟎:𝟎𝟎 ──────────•── 𝟎:𝟎𝟎*
 #  *ㅤ ㅤㅤ♥︎ㅤ ⇆ㅤ ◁ㅤ ❚❚ ㅤ▷ ㅤㅤ↻﻿*
